@@ -1,1 +1,0 @@
-# tuyona_qarz_emas-
